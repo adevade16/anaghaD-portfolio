@@ -1,3 +1,3 @@
-Hello welcome to my Protfolio!!
+Hello welcome to my Portfolio!!
 
 It will be live very soon.
